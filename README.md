@@ -1,1 +1,1 @@
-# Srinivasa-HighSchool
+# Srinivasa-High-School
